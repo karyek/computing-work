@@ -1,5 +1,5 @@
 # computing-work
-# computing short story
+computing short story
 
 
 *hello :D*
