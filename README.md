@@ -1,5 +1,5 @@
 # computing-work
-computing short story
+workspace to create short stories :)
 
 *hello :D*
 I am **claire**, a student of [Dunman High School](https://dunmanhigh.moe.edu.sg/)
