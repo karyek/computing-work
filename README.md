@@ -8,4 +8,4 @@ my hobies include:
 
 *sleeping, eating, reading*
 
-je suis un fromage. 🧀
+I take French as a third Language other than all the subjects that I take in school. (edit made by ziying :) )
